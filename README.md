@@ -33,3 +33,5 @@ Pnac sie na szczyt pamietaj o rzeczywistosci
 
 Pleciesz wici za ekranem, masz nadzieje ze cos wyjdzie, social hacking jak na co dzien i nie wiedza
 Ze jak cos powiem to dla zysku
+
+-
