@@ -18,15 +18,16 @@ już nie tłumię swojej żądzy ej
 już nie tłumię swojej żądzy
 
 VERSE
-pleciesz wici za ekranem, 
+pleciesz wici za ekranem, co się w nich zawiera
 stawiasz repo - masz nadzieje ze cos wyjdzie 
 social hacking jak na co dzien i niewiedza
-ze jak juz cos powiem to dla zysku
 co by nie powiedzieć, misja zdana
+ze jak juz cos powiem to dla zysku
 obłowieni w dusze, wolimy nie wiedzieć
-co się w nich zawiera
+cały czas to samo nadal tkwimy w dole 
+nadal trwamy w swoim czyścu
+
 ważne jest to mieć na stole, sto lat później
-cały czas to samo czyścieć w dole
 gramy pod podobny akord, inny brewiaż 
 nadal ta sama śpiewka
 
