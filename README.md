@@ -9,32 +9,41 @@ fem vox add type
 
 ```
 
-CHORUS
+nananana
+
+ey ey ya
+
+bragga bragga
+bragga bragga
+
 czego bym nie zrobił w necie, fast track naturalnie
 twoje wszystkie żądze to mój bankroll (kochanie)
 sekta Skrilla - wymienieni na pieniądze
 sekta Skrilla - już nie tłumię swojej żądzy (grozy)
 już nie tłumię swojej żądzy ej
 już nie tłumię swojej żądzy
+ayuuu
+swojej żadzy
+nie
+swojej żadzy
 
-VERSE
-pleciesz wici za ekranem, co się w nich zawiera
+pleciesz wici za ekranem
+co się w nich zawiera
 stawiasz repo - masz nadzieje ze cos wyjdziee
-
 social hacking jak na co dzien i niewiedza
 co by nie powiedzieć, misja zdana, trefna era
+trefna era ey ey ey ey
 
 ze jak juz cos powiem to dla zysku
-
 obłowieni w dusze, wolimy nie wiedzieć
-cały czas to samo 
+cały czas 
 
-nadal tkwimy w dole 
+to samo nadal tkwimy w dole 
 nadal trwamy w swoim czyścu
-
-ważne jest to mieć na stole, sto lat później
+ważne jest to mieć na stole, 
+później sto lat 
 gramy pod podobny akord, inny brewiaż 
-nadal ta sama śpiewka
+nadal ta sama śpiewka, to już nie przelewka
 
 
 Sekta Skrilla to to co nam daliście
