@@ -25,7 +25,7 @@ już nie tłumię swojej żądzy ej
 już nie tłumię swojej żądzy
 ayuuu
 swojej żadzy nie
-swojej swojej żadzy
+swojej swojej żadzy nie
 
 pleciesz wici za ekranem, co się w nich zawiera
 repo stawiasz - masz nadzieje ze cos wyjdziee
@@ -35,11 +35,12 @@ trefna era ey ey ey ey
 
 ze jak juz cos powiem to dla zysku
 obłowieni w dusze, wolimy nie wiedzieć
-cały czas to samo nadal tkwimy w dole 
+cały czas co nas sponiewiera
+(to samo) nadal tkwimy w dole 
 nadal trwamy w swoim czyścu
-ważne jest co mieć na stole, 
-później sto lat 
+ważne jest co mieć na stole, pokaż staż
 
+sto lat później
 gramy pod podobny akord, inny brewiaż 
 nadal ta sama śpiewka, to już nie przelewka
 
