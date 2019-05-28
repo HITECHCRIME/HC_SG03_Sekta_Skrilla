@@ -19,12 +19,17 @@ już nie tłumię swojej żądzy
 
 VERSE
 pleciesz wici za ekranem, co się w nich zawiera
-stawiasz repo - masz nadzieje ze cos wyjdzie 
+stawiasz repo - masz nadzieje ze cos wyjdziee
+
 social hacking jak na co dzien i niewiedza
-co by nie powiedzieć, misja zdana
+co by nie powiedzieć, misja zdana, trefna era
+
 ze jak juz cos powiem to dla zysku
+
 obłowieni w dusze, wolimy nie wiedzieć
-cały czas to samo nadal tkwimy w dole 
+cały czas to samo 
+
+nadal tkwimy w dole 
 nadal trwamy w swoim czyścu
 
 ważne jest to mieć na stole, sto lat później
