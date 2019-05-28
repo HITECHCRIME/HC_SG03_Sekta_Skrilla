@@ -3,6 +3,8 @@ Hitech Crime Single 'Sekta Skrilla'
 
 **Beat:**  [LUCY]
 
+https://www.youtube.com/watch?v=GB6MdRTbuYI
+
 **Notes**
 Additional vocal na na na to the melody LOL
 fem vox add type
