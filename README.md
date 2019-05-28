@@ -10,12 +10,9 @@ fem vox add type
 ```
 
 nananana
-
 ey ey ya
-
 bragga bragga
 bragga bragga
-
 czego bym nie zrobił w necie, fast track naturalnie
 twoje wszystkie żądze to mój bankroll (kochanie)
 sekta Skrilla - wymienieni na pieniądze
