@@ -14,6 +14,8 @@ Hauling loot.
 ```
 nanana
 
+transaction accepted
+
 bragga bragga
 bragga bragga
 bragga bragga nah ey
@@ -40,7 +42,7 @@ repo stawiasz
 masz nadzieje ze cos wyjdziee
 social hacking jak na co dzien i niewiedza
 co by nie powiedzieć (trefna era) misja zdana, 
-trefna era wiesz nad ranem profit przyjdzie 
+trefna era wiem nad ranem moj profit przyjdzie 
 (wolność przyjdzie)
 
 xxx ey ey ey ey
@@ -69,6 +71,8 @@ sekta skrilla aye
 raaaa
 raaaa
 sekta skrilla ya aye
+
+skandowanie (sekta, sekta, sekta, skrilla, skrilla, skrilla)
 
 sekta Skrilla - wymienieni na pieniądze
 
