@@ -60,7 +60,19 @@ nadal ta sama śpiewka, to już nie przelewka
 czego bym nie zrobił w necie
 fast track naturalnie
 twoje wszystkie żądze 
-to mój bankroll kochanie
+to mój ------ bankroll kochanieeeeeeeeeee
+
+życie budzi sekret
+to się mi zabiera (kiedy coś ci sie odbiera)
+nie postawisz na frajera 
+x x x 3 kafli w ciemno
+kiedy muszę czuć regret
+przyjdzie
+mi się zdarza
+krew na knucklach
+na knucklach
+zetrę łez
+
 sekta Skrilla - wymienieni na pieniądze
 
 sekta Skrilla - już nie tłumię swojej żądzy
@@ -69,18 +81,23 @@ już nie tłumię swojej żądzy ej (aye)
 swojej żadzy nie
 swojej swojej żadzy nie
 
-życie budzi sekret
-to się mi zabiera (kiedy coś ci sie odbiera)
-nie postawisz na frajera 
-3 kafli w ciemno
-x
-x
-kiedy muszę czuć regret
-przyjdzie
-mi się zdarza
-krew na knucklach
-na knucklach
-zetrę łez
+raaa
+
+pleciesz wici za ekranem, co się w nich zawiera
+repo stawiasz - masz nadzieje ze cos wyjdziee
+social hacking jak na co dzien i niewiedza
+co by nie powiedzieć, misja zdana, trefna era
+trefna era kiedy wiesz, że profit przyjdzie 
+(wolność przyjdzie)
+
+
+
+
+
+
+
+
+
 
 
 Twoja dusza to juz prochno 
