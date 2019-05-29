@@ -55,8 +55,9 @@ nadal trwamy w swoim czyścu
 ważne jest co mieć na stole, 
 pokaż staż, pokaż staż
 sto lat później
-gramy pod podobny akord, inny brewiaż 
+gramy pod podobny akord, inny brewiaż już
 nadal taka sama śpiewka, to już nie przelewka
+inny bestiariusz
 
 czego bym nie zrobił w necie
 fast track naturalnie
@@ -100,10 +101,11 @@ swojej swojej żadzy nie
 
 życie budzi sekret
 (kiedy coś ci sie odbiera) to się mi zabiera 
-nie postawisz na frajera 
+nie postawisz fundamentu 
 tyle kafli z musu w ciemno to nie drobne
 to monument zaufania
-całej władzy, cześć ci oddam 
+całej władzy, cześć ci oddam
+kiedy czas ucieka
 kiedy muszę czuć ten żal
 a przyjdzie mi się zdarza
 zetrę łzy na kalendarzach
