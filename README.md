@@ -13,19 +13,22 @@ Hauling loot.
 
 ```
 nananana
-ey ey ya
+(ey ey ya)
+bragga bragga
 bragga bragga ey
 bragga bragga nah ey ya
-czego bym nie zrobił w necie, fast track naturalnie
-twoje wszystkie żądze
+(czego bym nie zrobił w necie, fast track naturalnie
+twoje wszystkie żądze)
 
-czego bym nie zrobił w necie, fast track naturalnie
-twoje wszystkie żądze to mój bankroll kochanie
+czego bym nie zrobił w necie
+fast track naturalnie
+twoje wszystkie żądze 
+to mój bankroll kochanie
 sekta Skrilla - wymienieni na pieniądze
 sekta Skrilla - już nie tłumię swojej żądzy
-już nie tłumię swojej żądzy ej
+już nie tłumię swojej żądzy (nie)
 już nie tłumię swojej żądzy
-ayuuu
+ayuuu ej
 swojej żadzy nie
 swojej swojej żadzy nie
 
@@ -33,18 +36,33 @@ pleciesz wici za ekranem, co się w nich zawiera
 repo stawiasz - masz nadzieje ze cos wyjdziee
 social hacking jak na co dzien i niewiedza
 co by nie powiedzieć, misja zdana, trefna era
-trefna era ey ey ey ey
+trefna era - wolność przyjdzie
 
+ey ey ey ey
+rzucić papier czy wyznawać?
 ze jak juz cos powiem to dla zysku
 obłowieni w dusze, wolimy nie wiedzieć
 cały czas co nas sponiewiera
 (to samo) nadal tkwimy w dole 
 nadal trwamy w swoim czyścu
 ważne jest co mieć na stole, pokaż staż
-
 sto lat później
 gramy pod podobny akord, inny brewiaż 
 nadal ta sama śpiewka, to już nie przelewka
+
+
+życie budzi sekret
+to się mi zabiera (kiedy coś ci sie odbiera)
+nie postawisz na frajera 
+3 kafli
+x
+x
+kiedy muszę czuć regret
+przyjdzie
+mi się zdarza
+krew na knucklach
+na knucklach
+
 
 Twoja dusza to juz prochno 
 sypiesz się za pieniadze
