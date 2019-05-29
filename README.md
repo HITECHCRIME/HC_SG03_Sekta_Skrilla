@@ -32,7 +32,7 @@ sekta Skrilla - już nie tłumię swojej żądzy
 już nie tłumię swojej żądzy, nie
 już nie tłumię swojej żądzy ej (aye) /// 
 swojej żadzy nie                     ///
-swojej swojej żadzy nie
+swojej swojej żadzy nie ey
 
 pleciesz wici nad ekranem, 
 co się w nich zawiera
@@ -69,6 +69,14 @@ sekta skrilla aye
 raaaa
 raaaa
 sekta skrilla ya aye
+
+sekta Skrilla - wymienieni na pieniądze
+
+sekta Skrilla - już nie tłumię swojej żądzy
+już nie tłumię swojej żądzy, nie
+już nie tłumię swojej żądzy ej (aye)
+swojej żadzy nie
+swojej swojej żadzy nie
 
 sekta skrilla 
 
