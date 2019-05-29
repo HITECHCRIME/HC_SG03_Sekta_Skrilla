@@ -54,7 +54,7 @@ ważne jest co mieć na stole,
 pokaż staż, pokaż staż
 sto lat później
 gramy pod podobny akord, inny brewiaż 
-nadal ta sama śpiewka, to już nie przelewka
+nadal taka sama śpiewka, to już nie przelewka
 
 czego bym nie zrobił w necie
 fast track naturalnie
@@ -80,10 +80,12 @@ kiedy muszę czuć ten żal
 a przyjdzie mi się zdarza
 zetrę łzy na kalendarzach
 wszystkowiercom za ten balans
-krew na knucklach na erach
+krew na knucklach zetrę wolniej
 na knucklach erach
 
-sekta skrilla
+(sekta skrilla - wymienieni na pieniądze)
+
+sekta skrilla 
 
 raa
 
