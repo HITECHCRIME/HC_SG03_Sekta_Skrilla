@@ -12,15 +12,13 @@ fem vox add type
 Hauling loot.
 
 ```
-(czego bym nie zrobił w necie, fast track naturalnie
-twoje wszystkie żądze)
-
 nanana
+
 bragga bragga
 bragga bragga
-bragga bragga ey
 bragga bragga nah ey
-bragga bragga nah ey 
+bragga bragga nah  
+bragga bragga nah ey
 bragga
 prr, prr, prr
 
@@ -43,7 +41,7 @@ masz nadzieje ze cos wyjdziee
 
 social hacking jak na co dzien i niewiedza
 co by nie powiedzieć misja zdana, 
-trefna era (nad ranem) wiesz, że profit przyjdzie 
+trefna era wiesz nad ranem profit przyjdzie 
 (wolność przyjdzie)
 
 xxx ey ey ey ey
