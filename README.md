@@ -39,7 +39,7 @@ co się w nich zawiera
 repo stawiasz 
 masz nadzieje ze cos wyjdziee
 social hacking jak na co dzien i niewiedza
-co by nie powiedzieć misja zdana, 
+co by nie powiedzieć (trefna era) misja zdana, 
 trefna era wiesz nad ranem profit przyjdzie 
 (wolność przyjdzie)
 
@@ -70,21 +70,6 @@ raaaa
 raaaa
 sekta skrilla ya aye
 
-życie budzi sekret
-(kiedy coś ci sie odbiera) to się mi zabiera 
-nie postawisz na frajera 
-tyle kafli z musu w ciemno to nie drobne
-to monument zaufania
-całej władzy, cześć ci oddam 
-kiedy muszę czuć ten żal
-a przyjdzie mi się zdarza
-zetrę łzy na kalendarzach
-wszystkowiercom za ten balans
-krew na knucklach zetrę wolniej
-na knucklach erach
-
-(sekta skrilla - wymienieni na pieniądze)
-
 sekta skrilla 
 
 raa
@@ -101,12 +86,20 @@ już nie tłumię swojej żądzy ej (aye)
 swojej żadzy nie
 swojej swojej żadzy nie
 
-pleciesz wici za ekranem, co się w nich zawiera
-repo stawiasz - masz nadzieje ze cos wyjdziee
-social hacking jak na co dzien i niewiedza
-co by nie powiedzieć, misja zdana, trefna era
-trefna era kiedy wiesz, że profit przyjdzie 
-(wolność przyjdzie)
+życie budzi sekret
+(kiedy coś ci sie odbiera) to się mi zabiera 
+nie postawisz na frajera 
+tyle kafli z musu w ciemno to nie drobne
+to monument zaufania
+całej władzy, cześć ci oddam 
+kiedy muszę czuć ten żal
+a przyjdzie mi się zdarza
+zetrę łzy na kalendarzach
+wszystkowiercom za ten balans
+krew na knucklach zetrę wolniej
+na knucklach erach
+
+(sekta skrilla - wymienieni na pieniądze)
 
 
 
