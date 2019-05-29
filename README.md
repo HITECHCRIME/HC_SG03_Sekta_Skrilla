@@ -36,7 +36,7 @@ pleciesz wici za ekranem, co się w nich zawiera
 repo stawiasz - masz nadzieje ze cos wyjdziee
 social hacking jak na co dzien i niewiedza
 co by nie powiedzieć, misja zdana, trefna era
-trefna era - wolność przyjdzie
+trefna era - profit przyjdzie (wolność przyjdzie)
 
 ey ey ey ey
 rzucić papier czy wyznawać?
