@@ -30,15 +30,14 @@ sekta Skrilla - wymienieni na pieniądze
 
 sekta Skrilla - już nie tłumię swojej żądzy
 już nie tłumię swojej żądzy, nie
-już nie tłumię swojej żądzy ej (aye)
-swojej żadzy nie
+już nie tłumię swojej żądzy ej (aye) /// 
+swojej żadzy nie                     ///
 swojej swojej żadzy nie
 
 pleciesz wici nad ekranem, 
 co się w nich zawiera
 repo stawiasz 
 masz nadzieje ze cos wyjdziee
-
 social hacking jak na co dzien i niewiedza
 co by nie powiedzieć misja zdana, 
 trefna era wiesz nad ranem profit przyjdzie 
@@ -49,12 +48,10 @@ rzucić papier czy wyznawać? myślisz
 ze jak juz cos powiem to dla zysku
 obłowieni w dusze, wolimy nie wiedzieć
 cały czas co nas (samych) sponiewiera
-(to samo) nadal tkwimy w dole 
+nadal tkwimy w dole 
 nadal trwamy w swoim czyścu
 ważne jest co mieć na stole, 
-pokaż staż
-x
-x
+pokaż staż, pokaż staż
 sto lat później
 gramy pod podobny akord, inny brewiaż 
 nadal ta sama śpiewka, to już nie przelewka
@@ -64,29 +61,36 @@ fast track naturalnie
 twoje wszystkie żądze 
 to mój ------ bankroll kochanieeeeeeeeeee
 
-bankroll kochanie
-sekta
+bankroll kochanie yeah
+aye
+sekta - sekta
 sekta skrilla 
 sekta skrilla aye
 raaaa
-ya
+raaaa
 sekta skrilla ya aye
 
 życie budzi sekret
 (kiedy coś ci sie odbiera) to się mi zabiera 
 nie postawisz na frajera 
-3 kafli z musu w ciemno
-
-kiedy muszę czuć żal
+tyle kafli z musu w ciemno to nie drobne
+to monument zaufania
+całej władzy, cześć ci oddam 
+kiedy muszę czuć ten żal
 a przyjdzie mi się zdarza
+zetrę łzy na kalendarzach
+wszystkowiercom za ten balans
 krew na knucklach na erach
 na knucklach erach
-zetrę łez 
 
 sekta skrilla
 
 raa
 
+czego bym nie zrobił w necie
+fast track naturalnie
+twoje wszystkie żądze 
+to mój bankroll kochanie
 sekta Skrilla - wymienieni na pieniądze
 
 sekta Skrilla - już nie tłumię swojej żądzy
