@@ -12,23 +12,28 @@ fem vox add type
 Hauling loot.
 
 ```
-nananana
-(ey ey ya)
-bragga bragga
-bragga bragga ey
-bragga bragga nah ey ya
 (czego bym nie zrobił w necie, fast track naturalnie
 twoje wszystkie żądze)
+
+nanana
+bragga bragga
+bragga bragga
+bragga bragga ey
+bragga bragga nah ey
+bragga bragga nah ey 
+bragga bragga nah
+bragga
+prr, prr, prr
 
 czego bym nie zrobił w necie
 fast track naturalnie
 twoje wszystkie żądze 
 to mój bankroll kochanie
 sekta Skrilla - wymienieni na pieniądze
+
 sekta Skrilla - już nie tłumię swojej żądzy
-już nie tłumię swojej żądzy (nie)
-już nie tłumię swojej żądzy
-ayuuu ej
+już nie tłumię swojej żądzy, nie
+już nie tłumię swojej żądzy ej (aye)
 swojej żadzy nie
 swojej swojej żadzy nie
 
@@ -36,7 +41,8 @@ pleciesz wici za ekranem, co się w nich zawiera
 repo stawiasz - masz nadzieje ze cos wyjdziee
 social hacking jak na co dzien i niewiedza
 co by nie powiedzieć, misja zdana, trefna era
-trefna era - profit przyjdzie (wolność przyjdzie)
+trefna era kiedy wiesz, że profit przyjdzie 
+(wolność przyjdzie)
 
 ey ey ey ey
 rzucić papier czy wyznawać?
@@ -45,16 +51,28 @@ obłowieni w dusze, wolimy nie wiedzieć
 cały czas co nas sponiewiera
 (to samo) nadal tkwimy w dole 
 nadal trwamy w swoim czyścu
-ważne jest co mieć na stole, pokaż staż
+ważne jest co mieć na stole, 
+pokaż staż
 sto lat później
 gramy pod podobny akord, inny brewiaż 
 nadal ta sama śpiewka, to już nie przelewka
 
+czego bym nie zrobił w necie
+fast track naturalnie
+twoje wszystkie żądze 
+to mój bankroll kochanie
+sekta Skrilla - wymienieni na pieniądze
+
+sekta Skrilla - już nie tłumię swojej żądzy
+już nie tłumię swojej żądzy, nie
+już nie tłumię swojej żądzy ej (aye)
+swojej żadzy nie
+swojej swojej żadzy nie
 
 życie budzi sekret
 to się mi zabiera (kiedy coś ci sie odbiera)
 nie postawisz na frajera 
-3 kafli
+3 kafli w ciemno
 x
 x
 kiedy muszę czuć regret
@@ -62,6 +80,7 @@ przyjdzie
 mi się zdarza
 krew na knucklach
 na knucklach
+zetrę łez
 
 
 Twoja dusza to juz prochno 
