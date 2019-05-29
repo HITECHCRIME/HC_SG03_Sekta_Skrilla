@@ -21,7 +21,6 @@ bragga bragga
 bragga bragga ey
 bragga bragga nah ey
 bragga bragga nah ey 
-bragga bragga nah
 bragga
 prr, prr, prr
 
@@ -37,15 +36,18 @@ już nie tłumię swojej żądzy ej (aye)
 swojej żadzy nie
 swojej swojej żadzy nie
 
-pleciesz wici za ekranem, co się w nich zawiera
-repo stawiasz - masz nadzieje ze cos wyjdziee
+pleciesz wici za ekranem, 
+co się w nich zawiera
+repo stawiasz 
+masz nadzieje ze cos wyjdziee
+
 social hacking jak na co dzien i niewiedza
-co by nie powiedzieć, misja zdana, trefna era
-trefna era kiedy wiesz, że profit przyjdzie 
+co by nie powiedzieć, (nad ranem) misja zdana, 
+trefna era, trefna era kiedy wiesz, że profit przyjdzie 
 (wolność przyjdzie)
 
-ey ey ey ey
-rzucić papier czy wyznawać?
+xxx ey ey ey ey
+rzucić papier czy wyznawać? myślisz
 ze jak juz cos powiem to dla zysku
 obłowieni w dusze, wolimy nie wiedzieć
 cały czas co nas sponiewiera
@@ -53,6 +55,8 @@ cały czas co nas sponiewiera
 nadal trwamy w swoim czyścu
 ważne jest co mieć na stole, 
 pokaż staż
+x
+x
 sto lat później
 gramy pod podobny akord, inny brewiaż 
 nadal ta sama śpiewka, to już nie przelewka
@@ -62,16 +66,25 @@ fast track naturalnie
 twoje wszystkie żądze 
 to mój ------ bankroll kochanieeeeeeeeeee
 
+bankroll kochanie
+sekta
+
+sekta skrilla ya aye
+
 życie budzi sekret
-to się mi zabiera (kiedy coś ci sie odbiera)
+(kiedy coś ci sie odbiera) to się mi zabiera 
 nie postawisz na frajera 
-x x x 3 kafli w ciemno
-kiedy muszę czuć regret
-przyjdzie
-mi się zdarza
-krew na knucklach
-na knucklach
-zetrę łez
+3 kafli z musu w ciemno
+
+kiedy muszę czuć żal
+a przyjdzie mi się zdarza
+krew na knucklach na erach
+na knucklach erach
+zetrę łez 
+
+sekta skrilla
+
+raa
 
 sekta Skrilla - wymienieni na pieniądze
 
@@ -80,8 +93,6 @@ już nie tłumię swojej żądzy, nie
 już nie tłumię swojej żądzy ej (aye)
 swojej żadzy nie
 swojej swojej żadzy nie
-
-raaa
 
 pleciesz wici za ekranem, co się w nich zawiera
 repo stawiasz - masz nadzieje ze cos wyjdziee
