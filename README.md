@@ -36,21 +36,21 @@ już nie tłumię swojej żądzy ej (aye)
 swojej żadzy nie
 swojej swojej żadzy nie
 
-pleciesz wici za ekranem, 
+pleciesz wici nad ekranem, 
 co się w nich zawiera
 repo stawiasz 
 masz nadzieje ze cos wyjdziee
 
 social hacking jak na co dzien i niewiedza
-co by nie powiedzieć, (nad ranem) misja zdana, 
-trefna era, trefna era kiedy wiesz, że profit przyjdzie 
+co by nie powiedzieć misja zdana, 
+trefna era (nad ranem) wiesz, że profit przyjdzie 
 (wolność przyjdzie)
 
 xxx ey ey ey ey
 rzucić papier czy wyznawać? myślisz
 ze jak juz cos powiem to dla zysku
 obłowieni w dusze, wolimy nie wiedzieć
-cały czas co nas sponiewiera
+cały czas co nas (samych) sponiewiera
 (to samo) nadal tkwimy w dole 
 nadal trwamy w swoim czyścu
 ważne jest co mieć na stole, 
@@ -68,7 +68,10 @@ to mój ------ bankroll kochanieeeeeeeeeee
 
 bankroll kochanie
 sekta
-
+sekta skrilla 
+sekta skrilla aye
+raaaa
+ya
 sekta skrilla ya aye
 
 życie budzi sekret
