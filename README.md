@@ -34,7 +34,7 @@ sekta Skrilla - już nie tłumię swojej żądzy
 już nie tłumię swojej żądzy, nie
 już nie tłumię swojej żądzy ej (aye) /// 
 swojej żadzy nie                     ///
-swojej swojej żadzy nie ey
+swojej swojej żadzy nie ey (add a scream (fast steady version)
 
 pleciesz wici nad ekranem, 
 co się w nich zawiera
