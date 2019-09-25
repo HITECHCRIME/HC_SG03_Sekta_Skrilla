@@ -1,9 +1,11 @@
-# HC_SG03_sekta_skrilla
+# MOTHNODE_ Sekta Skrilla (Prod. NeighbouR)
 Hitech Crime Single 'Sekta Skrilla'
 
 **Beat:**  [LUCY]
 
 https://www.youtube.com/watch?v=GB6MdRTbuYI
+
+
 
 **Notes**
 Additional vocal na na na to the melody LOL
