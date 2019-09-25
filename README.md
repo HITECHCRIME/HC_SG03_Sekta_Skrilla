@@ -1,7 +1,7 @@
 # MOTHNODE_ Sekta Skrilla (Prod. NeighbouR)
 Hitech Crime Single 'Sekta Skrilla'
 
-**Beat:**  [LUCY]
+**Beat:** Previous one was [LUCY]
 
 https://www.youtube.com/watch?v=GB6MdRTbuYI
 
