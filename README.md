@@ -5,12 +5,12 @@ Hitech Crime Single 'Sekta Skrilla'
 
 https://www.youtube.com/watch?v=GB6MdRTbuYI
 
-
+[FREE] NIGHT LOVELL x SHAHMEN Type Beat "Old Chains" Trap Instrumental
 
 **Notes**
 Additional vocal na na na to the melody LOL
 fem vox add type
-
+ 
 Hauling loot.
 
 ```
